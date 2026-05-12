@@ -1,4 +1,4 @@
-#  
+#  Experience get strong for brainrots like never before with get strong for brainrots Script exclusive, the #1 Script. Includes auto-collect and
 
 
 
